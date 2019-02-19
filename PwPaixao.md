@@ -1,0 +1,2 @@
+- Desejo seguir e se especializar na área de programação, desenvolver sistemas.
+- Gostaria de trabalhar em empresas que queiram especialistas em Desenvolvimento de Sistemas, com trabalhos em equipe, com oportunidades.
